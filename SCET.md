@@ -6,4 +6,4 @@ At Stacy Cutting Edge Technology, we are dedicated to pushing the boundaries of 
 
 Whether you're a tech enthusiast, a professional, or someone looking to streamline their daily routines, Stacy Cutting Edge Technology has something for you. Explore our range of products and discover how we are setting new standards in the world of technology.
 
-Join us on this exciting journey and experience the future today. Welcome to Stacy Cutting Edge Technology, where innovation meets inspiration.
+Join us on this exciting journey and experience the future today. Welcome to SCET, where innovation meets inspiration.
