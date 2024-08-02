@@ -4,6 +4,6 @@ As an experienced professional with a Master's degree in Business Administration
 
 At Stacy's Cutting Edge Technology, we are dedicated to pushing the boundaries of what's possible. Our products (office supplies to hybrid computers) and services are not just about advanced features and sleek designs; they are about enhancing your life, making everyday tasks simpler, and providing solutions that are as intuitive as they are powerful.
 
-Whether you're a tech enthusiast, a professional, or someone looking to streamline their daily routines, Stacy's Cutting Edge Technology has something for you. Explore our range of products and services. Discover how we are setting new standards in the world of technology.
+Whether you're a tech enthusiast, a professional, or someone looking to streamline their daily routines, Stacy's Cutting Edge Technology has something for you. Discover how we are setting new standards in the world of technology.
 
 Join us on this exciting journey and experience the future today. Welcome to SCET, where innovation meets inspiration.
