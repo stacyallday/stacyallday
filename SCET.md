@@ -1,4 +1,4 @@
-Welcome to Stacy's Cutting Edge Technology
+Welcome to Stacy's Cutting Edge Technology | SCET
 
 As an experienced professional with a Master's degree in Business Administration and a concentration in Human Resource Management, I am thrilled to introduce you to Stacy's Cutting Edge Technology. Our new product line represents the pinnacle of innovation and excellence, designed to meet the ever-evolving needs of today's tech-savvy consumers.
 
